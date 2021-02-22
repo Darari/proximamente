@@ -1,0 +1,2 @@
+# proximamente
+Coming soon template.
